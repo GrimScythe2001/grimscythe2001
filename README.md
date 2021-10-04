@@ -1,3 +1,4 @@
+<img src="https://komarev.com/ghpvc/?username=GrimScythe2001&color=258008">
 <p align = "center">
 <img src="https://scontent.fktm1-2.fna.fbcdn.net/v/t1.6435-9/s960x960/72231931_2493182024101483_5148276692401258496_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=e3f864&_nc_ohc=XtBjQ5Tb1n4AX-uxJMU&tn=yh3gNhcbayUD1KQi&_nc_ht=scontent.fktm1-2.fna&oh=e422b771b85a9cdb5c40554bbab3569a&oe=61806659">
 </p>
