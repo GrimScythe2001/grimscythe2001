@@ -1,6 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=GrimScythe2001&color=258008">
 <p align = "center">
-<img src="https://user-images.githubusercontent.com/55135657/136062543-d7f23e2d-a046-46b3-9efe-f782238e2f39.gif">
+<img src="https://user-images.githubusercontent.com/55135657/136062953-48277e0f-9156-4e7b-b2a6-cdf8d67366bc.gif">
 </p>
 <br>
 <br>
