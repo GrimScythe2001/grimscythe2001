@@ -5,7 +5,7 @@
 <br>
 <br>
 <p align = "center">
-→ <a href="https://www.youtube.com/channel/UCAHUY9g1DX-FMoenQ0RMrWA">YOUTUBE</a> ❖ <a href="https://twitter.com/SubhojitGhimire">TWITTER</a> ❖ <a href="https://www.instagram.com/subhojitghimire/">INSTAGRAM</a> ❖ <a href="https://www.facebook.com/SubhojitGhimire/">FACEBOOK</a> ←
+→ <a href="https://www.linkedin.com/in/subhojitghimire/">LINKEDIN</a> ❖ <a href="https://twitter.com/SubhojitGhimire">TWITTER</a> ❖ <a href="https://www.instagram.com/subhojitghimire/">INSTAGRAM</a> ❖ <a href="https://www.facebook.com/SubhojitGhimire/">FACEBOOK</a> ←
 </p>
 <br>
 <br>
