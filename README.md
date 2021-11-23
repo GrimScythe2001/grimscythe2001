@@ -5,7 +5,7 @@
 <br>
 <br>
 <p align = "center">
-→ <a href="https://www.youtube.com/channel/UCLSnc2il5CPMHpe26rIuEPg">YOUTUBE</a> ❖ <a href="https://steamcommunity.com/id/GrimScythe2001">STEAM</a> ❖ <a href="https://discord.gg/v6WxeRzGsv">DISCORD</a> ❖ <a href="https://www.reddit.com/user/GrimScythe2058"> REDDIT</a> ←
+→ <a href="https://www.youtube.com/channel/UCAHUY9g1DX-FMoenQ0RMrWA">YOUTUBE</a> ❖ <a href="https://twitter.com/SubhojitGhimire">TWITTER</a> ❖ <a href="https://www.instagram.com/subhojitghimire/">INSTAGRAM</a> ❖ <a href="https://www.facebook.com/SubhojitGhimire/">FACEBOOK</a> ←
 </p>
 <br>
 <br>
